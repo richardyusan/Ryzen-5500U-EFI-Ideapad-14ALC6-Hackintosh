@@ -1,0 +1,1 @@
+# Ryzen-5500U-EFI-Ideapad-14ALC6-Hackintosh
